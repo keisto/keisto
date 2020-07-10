@@ -1,4 +1,4 @@
-![Icebreaker Meme](https://imgflip.com/i/47tgux)
+![Icebreaker Meme](https://i.imgflip.com/47tgux.jpg)
 
 ---
 # But Seriously... Hello There! 👋
